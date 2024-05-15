@@ -1,1 +1,5 @@
 - [The 2022 Physics Nobel Prize Explained In Under 10 Minutes](https://youtu.be/1IfvjQD8_DQ)
+- [2022 Physics Nobel Prize for Quantum Entanglement](https://youtu.be/SWqCSvkPlAg)
+- [Nobel Prize in Physics 2022 Explained: Quantum Entanglement, Proving Einstein Wrong](https://youtu.be/-bf9rxkBUHc)
+- [Physicists Proved the Universe Isn’t Real](https://youtu.be/YSAhtl7BVtE)
+- [Nobel Prize in Physics 2022 Explained: Quantum Entanglement, Proving Einstein Wrong](https://youtu.be/-bf9rxkBUHc)
